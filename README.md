@@ -56,7 +56,7 @@
 ---
 
 ## 🌐 Connect  
-- Instagram: https://www.instagram.com/technirbhay_? 
+- Instagram: https://www.instagram.com/technirbhay_ 
 - GitHub: https://github.com/Technirbhay  
 
 ---
